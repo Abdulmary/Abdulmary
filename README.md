@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Abdulmary
-- 👀 I’m interested in data  analysis
+- 👀 I’m interested in data  analysis, software developer and It support
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on friend
 - 📫 How to reach me lateefatuthman2000@gmail.com
